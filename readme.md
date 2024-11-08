@@ -1,5 +1,5 @@
 
-## Bull Brute:
+## Bull Brute: 
 <img src="Bull_Brute_1.png">
 💵 I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
 
@@ -13,7 +13,9 @@ Login Aplikasi Bull Brute
 
 ## Bull Brute:
 <img src="Bull_Brute_3.png">
+
 AVAILABLE VERSIONS: 
+
 
 💻For Windows
 
@@ -36,7 +38,9 @@ FAQ:
 
 ## Bull Brute:
 <img src="Bull_Brute_4.png">
+
  PRICE:
+
 
 🎚️1 blockchain  - $300
 
@@ -65,7 +69,7 @@ TYPES OF LICENSE:
 
 ## Bull Brute:
 <img src="Bull_Brute_5.png">
-Free Discount
+Free Discount Member Vip
 
 ## Bull Brute:
 <img src="Bull_Brute_6.png">
@@ -83,8 +87,12 @@ What are you waiting for ⁉️🤨
 
 Find wallets with me 👉
 
+## Bull Brute:
+<img src="Bull_Brute_7.png">
+💸 Free Discount Only 
 
-### Hi. I'm Hambali Developers
+
+### Hi. I'm Hambali Developers 😎
 
 <img src="Hambali.png">
 
