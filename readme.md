@@ -1,8 +1,4 @@
-### HI. I'm HAMBALI  👩‍💻
-<img src="borderseparator.gif"/>
 
-
-⭐⭐⭐⭐⭐⭐
 ## Bull Brute:
 <img src="Bull_Brute_1.png">
 - 💵I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
@@ -11,13 +7,11 @@ Any crypto address has its mnemonic phrase, which consists of 12 words. Knowing 
 
 ⬇️More details about this method below
 
-⭐⭐⭐⭐⭐⭐
-## Mod Features:
+## Bull Brute:
 <img src="Bull_Brute_2.png">
 - Login Aplikasi Bull Brute
 
-⭐⭐⭐⭐⭐⭐
-## Mod Features:
+## Bull Brute:
 <img src="Bull_Brute_3.png">
 - AVAILABLE VERSIONS: 
 
@@ -38,7 +32,7 @@ FAQ:
 
 📲If you have any questions - contact
 
-## Mod Features:
+## Bull Brute:
 <img src="Bull_Brute_4.png">
 - PRICE:
 
@@ -60,10 +54,10 @@ TYPES OF LICENSE:
 
 👨‍💻BUY LICENSE - @HAMBALI251298
 
-⭐⭐⭐⭐⭐⭐
-## Mod Features:
+## Bull Brute:
 <img src="Bull_Brute_5.png">
-## Developers:
-```Bull Brute By Hambali
-```
+Free Discount
 
+
+### HI. I'm Hambali Developers 
+<img src="Hambali.png">
