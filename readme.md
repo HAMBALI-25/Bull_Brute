@@ -63,13 +63,14 @@ TYPES OF LICENSE:
 💡Monthly - you pay for the license every month, we don't charge a commission on your finds
 💡Unlimited - you purchase a license with no time limit, but in addition to the cost of the license we automatically charge 10% from each wallet you find
 
-❗️TEST PERIOD  - $20 / 1 day
+❗️TEST PERIOD  - $80 / 1 day
 
 👨‍💻BUY LICENSE
 
 ## Bull Brute:
 <img src="Bull_Brute_5.png">
-Free Discount Member Vip
+
+⚡️Free Discount Member Vip
 
 ## Bull Brute:
 <img src="Bull_Brute_6.png">
@@ -92,9 +93,22 @@ Find wallets with me 👉
 💸 Free Discount Only 
 
 
-### Hi. I'm Hambali Developers 😎
+### Hi. I'm Hambali Developers 
 
 <img src="Hambali.png">
+
+# Contact Me And SosialMedia 
+
+• Linkedlin : (HAMBALI)
+
+• Facebook  : (Hambali)
+
+• Instagram : (hambali6737)
+
+• telegram  : (@HAMBALI251298)
+
+• Telpon    : (+6283128356342)
+
 
 ## List of available sites:
 ```
