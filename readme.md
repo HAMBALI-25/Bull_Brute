@@ -1,7 +1,7 @@
 
 ## Bull Brute:
 <img src="Bull_Brute_1.png">
-- 💵I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
+- 💵 I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
 
 Any crypto address has its mnemonic phrase, which consists of 12 words. Knowing it you can get full access to the wallet. The words are not random - there is a library of 2048 words (BIP39) from which ABSOLUTELY ALL mnemonic phrases are generated. Our app generates mnemonic phrases and checks their balances on different blockchains
 
@@ -35,14 +35,20 @@ FAQ:
 ## Bull Brute:
 <img src="Bull_Brute_4.png">
 - PRICE:
-
 🎚️1 blockchain  - $300
+
 🎚️2 blockchains - $540
+
 🎚️3 blockchains  - $780
+
 🎚️4 blockchains  - $1000
+
 🎚️5 blockchains  - $1200
+
 🎚️6 blockchains  - $1380
+
 🎚️7 blockchains  - $1540
+
 🎚️8 blockchains  - $1680
 
 TYPES OF LICENSE:
@@ -52,12 +58,27 @@ TYPES OF LICENSE:
 
 ❗️TEST PERIOD  - $20 / 1 day
 
-👨‍💻BUY LICENSE - @HAMBALI251298
+👨‍💻BUY LICENSE
 
 ## Bull Brute:
 <img src="Bull_Brute_5.png">
 Free Discount
 
+## Bull Brute:
+<img src="Bull_Brute_5.png">
+👉 I provide you with all the 
 
-### HI. I'm Hambali Developers 
+information and tools TO BECOME RIC
+💰
+
+💁🏽‍♂️ You don't have to come up with your own ideas or search for a business plan.
+
+All you need to do IS TO RUN SOFTWARE and wait, usually just a few days, for it to find keys from forgotten wallets with crypto inside ⚡️
+
+What are you waiting for ⁉️🤨
+
+Find wallets with me 👉
+
+
+### Hi. I'm Hambali Developers 
 <img src="Hambali.png">
