@@ -1,5 +1,5 @@
 
-## Bull Brute: 
+## Bull Brute : 
 <img src="Bull_Brute_1.png">
 💵 I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
 
@@ -7,7 +7,7 @@ Any crypto address has its mnemonic phrase, which consists of 12 words. Knowing 
 
 ⬇️More details about this method below
 
-## Bull Brute:
+## Bull Brute :
 <img src="Bull_Brute_2.png">
 Login Aplikasi Bull Brute
 
@@ -36,7 +36,7 @@ FAQ:
 
 📲If you have any questions - contact
 
-## Bull Brute:
+## Bull Brute :
 <img src="Bull_Brute_4.png">
 
  PRICE:
@@ -67,12 +67,22 @@ TYPES OF LICENSE:
 
 👨‍💻BUY LICENSE
 
-## Bull Brute:
+do you want bull brute
+check the new app here
+
+information ✅
+http://bullbrute.com
+
+## Bull Brute :
+<img src="Bull_Brute_8.png">
+
+
+## Bull Brute :
 <img src="Bull_Brute_5.png">
 
 ⚡️Free Discount Member Vip
 
-## Bull Brute:
+## Bull Brute :
 <img src="Bull_Brute_6.png">
 
 👉 I provide you with all the 
@@ -88,7 +98,7 @@ What are you waiting for ⁉️🤨
 
 Find wallets with me 👉
 
-## Bull Brute:
+## Bull Brute :
 <img src="Bull_Brute_7.png">
 💸 Free Discount Only 
 
