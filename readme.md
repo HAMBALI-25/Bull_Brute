@@ -1,4 +1,3 @@
-
 ## Bull Brute : 
 <img src="Bull_Brute_1.png">
 💵 I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
@@ -74,7 +73,7 @@ information ✅
 http://bullbrute.com
 
 ## Bull Brute :
-<img src="Bull_Brute_8.png">
+<img src="Promo_Discount_4.png">
 
 
 ## Bull Brute :
@@ -83,7 +82,7 @@ http://bullbrute.com
 ⚡️Free Discount Member Vip
 
 ## Bull Brute :
-<img src="Bull_Brute_6.png">
+<img src="Promo_Discount_1.png">
 
 👉 I provide you with all the 
 
@@ -99,10 +98,10 @@ What are you waiting for ⁉️🤨
 Find wallets with me 👉
 
 ## Bull Brute :
-<img src="Bull_Brute_7.png">
+<img src="Promo_Discount_2.png">
 💸 Free Discount Only 
 
-<img src="Promo_Discount_1.png">
+<img src="Promo_Discount_3.png">
 💸 Free Discount Only 
 
 ### Hi. I'm Hambali Developers 
@@ -135,4 +134,3 @@ Find wallets with me 👉
 [09] PlayStation  [19] Reddit       [29] VK
 [10] GitHub       [20] Adobe
 ```
-
